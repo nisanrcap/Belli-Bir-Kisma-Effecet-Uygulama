@@ -1,0 +1,1 @@
+# Belli-Bir-Kisma-Effecet-Uygulama
